@@ -13,10 +13,9 @@ I'm a 31 years old woman who like video games since her childhood but is still a
 ### 2.  What I like the most in this universe:
 + My family
 + My boyfriend :heart:
-+ Sleeping :sleeping_bed:
++ Sleeping :zzz:
 ### 3.  The objectives I want to achieve as a developer during Becode:
 + Being capable to make a website or/and application
-+ 
 ### 4.  The fears I might have:
 + Not achieving my goals
 + Not being able to keep up with everything
