@@ -9,7 +9,7 @@ I'm a 31 years old woman who like video games since her childhood but is still a
 ### 1.  Most surprising skills:
 + Touching my nose with my tongue
 + Sleeping in the middle seat in the car or plane
-+ 
++ Planning
 ### 2.  What I like the most in this universe:
 + My family
 + My boyfriend :heart:
